@@ -1,4 +1,4 @@
-## Olá! Eu sou Cleyton Fagundes 🖖
+## Olá! Eu sou o Cleyton Fagundes 🖖
 
 Apaixonado por tecnologia e um eterno aprendiz nesse mundo chamado programação.
 
